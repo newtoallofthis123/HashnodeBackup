@@ -1,6 +1,6 @@
 # Artifact my Instagram?
 
-A few days ago Artifact, the startup by Instagram's co-founders, just hit the beta market on the play store and app store and I immediately downloaded it and I have some thoughts.
+A few days ago Artifact, the startup by Instagram's co-founders, just hit the beta market on the play store and app store and I immediately downloaded it and I have some thoughts. You can get it from [artifact.news](https://artifact.news).
 
 %[https://twitter.com/kevin/status/1628450129429639169] 
 
